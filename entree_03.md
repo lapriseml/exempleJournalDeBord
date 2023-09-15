@@ -1,20 +1,21 @@
 # Entrée 3
 ## Plan de carrière
+Mon plan de carrière n'est pas tout à fait ancré dans le béton. Plusieurs choix de carrière m'intéressent. Je pencherais plus vers l'animation ou la programmation.
 
 ### Présentation
-Parlez de vous. 
+Je suis une fan de Star Wars. J'ai de l'intérêt pour le dessin et l'écriture. J'aime les animaux et regarder des films et des séries. J'aime les ''cartoons'', surtout Clone Wars, Rebels, Family Guy, Cleveland Show et American Dad. 
 
 ### Intérêts dans le domaine
-Parlez de vos intérêts en multimédia. 
+Je suis intéressée principalement par l'animation et la programmation.
 
 ### Emplois qui vous intéressent
-Nommez deux emplois.
+Programmeuse et animatrice 3D.
 
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+Je m'identifie beaucoup à Lucasfilm et Seth Macfarlane surtout pour leur créativité dans le domaine de la télévision. 
 
 ### Dans 5 ans
-Où vous voyez-vous dans 5 ans? 
+Dans 5 ans, je me vois déjà lancée dans une carrière ou à l'univeristé pour poursuivre des études plus approfondies.
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+J'aimerais travailler sur un projet d'animation comme Family Guy (improbable mais on peut rêver...).
