@@ -9,6 +9,7 @@ J'ai beaucoup aimé la conférence et elle m'a beaucoup plu car j'ai trouvé que
 
 ### Clarté de la conférence (Entre 1 et 2 lignes)
 Comment avez-vous trouvé la clarté de la conférence? Est-ce que les idées étaient claires et concise?
+La conférence était très claire. La madame a bien pris soin d'expliquer en profondeur chaque idée et répondait à n'importe quelle question.
 
 ### Structure de la conférence (Entre 1 et 2 lignes)
 Comment avez-vous trouvé la clarté de la conférence? Est-ce que le développement était logique?
