@@ -13,8 +13,8 @@ La conférence était très claire. La madame a bien pris soin d'expliquer en pr
 
 ### Structure de la conférence (Entre 1 et 2 lignes)
 Comment avez-vous trouvé la clarté de la conférence? Est-ce que le développement était logique?
+C'est la même question mais j'ai trouvé la conférence très claire. Le développement était logique et constant.
 
 ### Qualité visuelle (Entre 1 et 2 lignes)
 Comment avez-vous trouvé la qualité visuelle de la conférence?Est-ce que l'esthétisme était de qualité?
-
-
+Je dois avouer que je n'ai pas porté attention à l'esthétisme de la conférence... mais comme rien de particulièrement mauvais m'ait sauté aux yeux, je tends à penser que la qualité visuelle devait être bonne.
